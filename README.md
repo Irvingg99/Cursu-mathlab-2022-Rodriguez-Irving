@@ -1,1 +1,1 @@
-# Cursu-mathlab-2022-Rodriguez-Irving
+# Curso-mathlab-2022-Rodriguez-Irving
